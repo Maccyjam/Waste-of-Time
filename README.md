@@ -1,1 +1,1 @@
-# Waste-of-Time
+# (Not such a) Waste-of-Time
